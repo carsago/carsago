@@ -1,5 +1,5 @@
 
-Tampa Bay Rays, NC Dinos, Korean, Library and Information Science
+Tampa Bay Rays, NC Dinos, Korean and majored in Library and Information Science
 
 <!--
 **carsago/carsago** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

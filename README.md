@@ -1,5 +1,5 @@
 
-Tampa Bay Rays, NC Dinos and Korean
+I'm interested in Tampa Bay Rays, NC Dinos(Korea Baseball Organization)
 
 <!--
 **carsago/carsago** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
